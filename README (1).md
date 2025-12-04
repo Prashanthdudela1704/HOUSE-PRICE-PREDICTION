@@ -74,7 +74,7 @@ Feel free to fork this repository and submit a pull request if you’d like to c
 
 If you want to connect or discuss this project:
 
-📧 Email: nithins0073@gmail.com
+📧 Email: prashanthdudela1718@gmail.com
 
-🔗 LinkedIn: https://www.linkedin.com/in/sattu-nithin-63b00a286
+🔗 LinkedIn:https://www.linkedin.com/in/dudela-prashanth-136492286/
  
